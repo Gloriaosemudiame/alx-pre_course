@@ -1,1 +1,1 @@
-Gloria loves to code
+Gloria is learning to code
